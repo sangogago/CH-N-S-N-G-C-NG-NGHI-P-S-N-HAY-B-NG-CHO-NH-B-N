@@ -1,0 +1,2 @@
+# CH-N-S-N-G-C-NG-NGHI-P-S-N-HAY-B-NG-CHO-NH-B-N
+Hiện nay, sàn gỗ công nghiệp đang được ưa chuộng bởi nhiều ưu điểm vượt trội so với vật liệu khác. Sàn gỗ mang lại ấm áp, vẻ đẹp sang trọng quý phái cho không gian hiện đại của ngôi nhà bạn. Tuy vậy, thị trường có rất nhiều loại sàn gỗ mà nhiều người cảm thấy khó khăn để lựa chọn. Nên chọn sàn gỗ sần hay bóng cho nhà bạn là một câu hỏi lớn của người. Ở đây, chúng tôi muốn chia sẻ với bạn về cách chọn sàn gỗ phù hợp nhất.
